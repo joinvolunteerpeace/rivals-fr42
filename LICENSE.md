@@ -1,4 +1,4 @@
-
+exclusive rivals Script is the best rivals Script, featuring undetectable and auto-heal. Safe and powerful for all your needs.
 
 
 
